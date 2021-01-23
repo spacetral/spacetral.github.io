@@ -1,1 +1,1 @@
-# spacetral.github.io
+# spacetral.com
